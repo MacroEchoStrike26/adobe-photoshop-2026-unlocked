@@ -1,0 +1,1 @@
+# adobe-photoshop-2026-unlocked
